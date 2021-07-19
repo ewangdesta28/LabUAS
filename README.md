@@ -9,6 +9,6 @@
   Link Demo : https://kaswargauas.000webhostapp.com/
   <br>
   <hr>
-  <b><i> Mohon Maaf Pak Bila ada Kekurangan ataupun Kesalahan, saya mengerjakan hanya semampu nya</i></b><br>
+  <b><i> Mohon Maaf Pak Bila ada Kekurangan ataupun Kesalahan,</i></b><br>
   Terima Kasih pak
   
