@@ -7,4 +7,8 @@
   [UAS Pemrograman Web - 311910741 Ewang Desta Permana TI.19.A.3.pdf](https://github.com/ewangdesta28/LabUAS/files/6840211/UAS.Pemrograman.Web.-.311910741.Ewang.Desta.Permana.TI.19.A.3.pdf) <br>
   <br>
   Link Demo : https://kaswargauas.000webhostapp.com/
-
+  <br>
+  <hr>
+  <b><i> Mohon Maaf Pak Bila ada Kekurangan ataupun Kesalahan, saya mengerjakan hanya semampu nya</i></b><br>
+  Terima Kasih pak
+  
